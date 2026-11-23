@@ -1,0 +1,2 @@
+# Gndgroup
+Taş duvar işi
